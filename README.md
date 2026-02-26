@@ -1,1 +1,0 @@
-# SOTIC1.github.io
